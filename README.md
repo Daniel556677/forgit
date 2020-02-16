@@ -12,3 +12,5 @@ Hi，I am back to China. Welcome to my home.
 ## Day 03
 ### Anlu
 During the third day, we stayed in Anlu, my hometown. We went fishing and firing. It is so fantastic.
+## Ending
+Time flies. A happy holiday.
