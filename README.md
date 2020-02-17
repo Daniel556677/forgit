@@ -15,6 +15,6 @@ During the third day, we stayed in Anlu, my hometown. We went fishing and firing
 ## Ending
 Time flies. A happy holiday.
 
-  I think there should be spare time tom go fun.                   
+  I think there should be spare time to go fun.                   
 
-​                                          2020年2月16日 安陆
+​                                          2020年2月17日 安陆
